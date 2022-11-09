@@ -1,0 +1,1 @@
+# WINC_Academy_assignment_income_inequality_in_relation_to_GDP
